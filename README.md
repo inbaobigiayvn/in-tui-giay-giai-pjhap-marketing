@@ -1,0 +1,2 @@
+# in-tui-giay-giai-pjhap-marketing
+Có thể nói rằng, việc in ấn bao bì túi giấy chính là một cách marketing với chi phí cực thấp, đồng thời bạn vừa có thể chứa đựng sản phẩm một cách hoàn hảo nhất. Thực tế, tính ta mỗi tháng bạn phải đầu tư cho hàng loạt các chiến dịch quảng cáo như clip quảng cáo truyền hình, chạy adwords hay việc in tờ rơi, tờ gấp. Việc chọn lựa những mẫu túi giấy độc quyền, vừa nhằm mục đích bao bì vừa có thể ra sức quảng bá mạnh mẽ thì cực kỳ hiệu quả.
